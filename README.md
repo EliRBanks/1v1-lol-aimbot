@@ -6,4 +6,5 @@
 
 Playing Fortnite with an aimbot hack can give you a big advantage over other players. An aimbot hack will lock on to your target and allow you to shoot them with ease.
 
-An aimbot hack is a piece of software that you run on your computer or game console to give yourself an edge in online shooting games like Fortnite. These types of cheats allow you to lock onto your target with ease and take them out before they have a chance to fire back.
+There are lots of different game modes where 1v1 fights can take place, but the one that is most well-known and popular is the ARAM game mode. With this, you get to see which champion is simply better in a 1v1 fight with no complications whatsoever.
+
